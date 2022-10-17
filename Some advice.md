@@ -1,4 +1,4 @@
-#### Some advicel give my graduate students about how to keep on top of the literature in their field
+#### Some advice I give my graduate students about how to keep on top of the literature in their field
 
 
 --- Mert R.Sabuncu 
